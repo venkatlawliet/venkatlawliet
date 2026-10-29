@@ -2,7 +2,7 @@
 
 AI Product Engineer building intelligent systems that automate complex workflows and turn messy processes into reliable AI products.
 # 💫 About Me: 
-🔭 I’m currently working on  <br>Building AI products that automate complex workflows and reduce manual work.<br><br>👯 I’m looking to collaborate on  <br>AI-driven tools that solve real-world problems and improve productivity.<br><br>🤝 I’m looking for help with  <br>Designing scalable and reliable AI systems for long-term use.<br><br>🌱 I’m currently learning  <br>Better ways to build dependable AI products and intelligent automation systems to improve the use of AI efficiency.<br><br>💬 Ask me about  <br>AI product development, automation, and turning ideas into real systems.<br><br>⚡ Fun fact  <br>I enjoy simplifying complex problems and building tools that save people time.
+🔭 I’m currently working on  <br>Building AI products that automate complex workflows and reduce manual work.<br><br>👯 I’m looking to collaborate on  <br>AI-driven tools that solve real-world problems and improve productivity.<br><br>🤝 I’m looking for help with  <br>Designing scalable and reliable AI systems for long-term use.<br><br>🌱 I’m currently learning  <br>Better ways to build dependable AI products and intelligent automation systems to improve the use of AI efficiency.<br><br>💬 Ask me about  <br>AI product development, automation, and turning ideas into real systems.<br><br>⚡ Fun fact  <br>I enjoy simplifying complex problems and building tools that save people time. <br> I enjoy reading documentaries about how people overcome challenges in work and life. There's so much to learn from their experiences, and it's changing the way I approach things.
 
 
 ## 🌐 Socials:
